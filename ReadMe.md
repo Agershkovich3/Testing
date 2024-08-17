@@ -8,3 +8,4 @@ In the heart of the enigmatic forest, where the ancient trees formed a cathedral
 
 
 Enveloped by the twilight's gentle embrace, the once vibrant carnival now lay abandoned, its faded tents and rusting rides casting long, mournful shadows across the cracked pavement, while the distant echo of an old, forgotten carousel melody mingled with the soft rustling of autumn leaves, creating a poignant tapestry of nostalgia and melancholy that lingered in the cool, evening air.
+High above the sprawling metropolis, where the labyrinth of city lights flickered like a constellation of artificial stars against the backdrop of the velvet night sky, the solitary figure perched on the rooftop surveyed the endless sea of concrete and steel below, their mind drifting through the tangled web of dreams and ambitions that mirrored the intricate patterns of the illuminated streets, as the cool breeze carried whispers of forgotten stories and distant promises.
